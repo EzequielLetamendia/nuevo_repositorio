@@ -1,2 +1,2 @@
 # nuevo_repositorio
-a ver vamnos de nuevo
+a ver vamos de nuevo
